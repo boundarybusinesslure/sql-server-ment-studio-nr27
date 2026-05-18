@@ -1,4 +1,4 @@
-# 
+# smart JetBrains PyCharm for PC scripts is the best JetBrains PyCharm for PC scripts with collaboration-tools and testing-tools. Safe, reliable, and optimized for maximum
 
 
 
